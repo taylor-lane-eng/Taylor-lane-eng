@@ -11,7 +11,6 @@ I am passionate about applying engineering and operational experience to develop
 I am participating in the Hiring Our Heroes Corporate Fellowship Program (Cohort 27-1) and am seeking a SkillBridge opportunity beginning January 2027. I will be available for full-time employment beginning July 2027.
 
 I look forward to connecting with organizations seeking engineers who bring both technical depth and real-world operational experience to complex systems.
-Outside of engineering, I enjoy strength training, the outdoors, and spending time with my family.
 
 Thanks for stopping by!
 
